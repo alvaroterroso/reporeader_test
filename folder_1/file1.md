@@ -1,4 +1,3 @@
-Fo-Foda-se, Chaylan, hm-hm-hm
 (Uh-uh, uh) Ah
 (Uh-uh, uh)
 Sempre que eu entro, eles sabem que eu venho forte
